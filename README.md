@@ -8,4 +8,5 @@ Great article about Agile being inspired by trauma.
 
 ## Coding Music
 Japanese Zen: https://www.youtube.com/watch?v=aDiPVU3ChMs
+
 Lo Fi Hip Hop: https://www.youtube.com/watch?v=Q33w9jv7U2Y
